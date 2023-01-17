@@ -2,7 +2,7 @@
 
 <br />
 
-## Lading-page Inspirada na maior plataforma de videos o Youtube!
+## Inspirada na maior plataforma de videos o Youtube!
 
 <br />
 
